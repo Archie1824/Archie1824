@@ -7,9 +7,9 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Archie1824](https://github.com/Archie1824)
 
-- 📫 How to reach me **archiepatel.1824@gmail.com**
+- 📫 How to reach me: **archiepatel.1824@gmail.com**
 
-- ⚡ Fun fact **I am foodie!**
+- ⚡ Fun fact: **I am foodie!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
